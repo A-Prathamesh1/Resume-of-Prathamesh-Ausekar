@@ -1,5 +1,1 @@
-# Github-class
-lets bring github down
-
-by logging together!
-changing again 
+Resume of Prathamesh Ausekar
